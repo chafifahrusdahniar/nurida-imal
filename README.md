@@ -1,1 +1,0 @@
-# nurida-imal
